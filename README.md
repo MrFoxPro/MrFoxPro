@@ -11,3 +11,6 @@ You'll also be sent into a re-education camp in the Xinjiang Uyghur Autonomous Z
 
 为党争光! Glory to the PRC!  
 ![изображение](https://user-images.githubusercontent.com/17229619/148805465-b9be72f1-f9a9-405f-bfa6-cb0b70ba6053.png)
+
+
+![blender](https://user-images.githubusercontent.com/17229619/148808596-6327d435-51f5-4356-9c55-27668816d159.gif)
